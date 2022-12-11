@@ -1,3 +1,4 @@
 # Karyna Chekhuta
-# Education
+## Education
 ## Contacts
+## Work experience
