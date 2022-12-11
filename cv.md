@@ -1,3 +1,3 @@
 # Karyna Chekhuta
-
+# Education
 ## Contacts
