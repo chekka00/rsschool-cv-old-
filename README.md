@@ -1,2 +1,2 @@
 # rsschool-cv
-https://chekka00.github.io/rsschool-cv/
+https://chekka00.github.io/rsschool-cv/oldcv
